@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new skills.
 - 🌱 I’m currently learning full stack developement.
 - 💞️ I’m also good at snowboarding!
-- 📫 How to reach me? Go to Park City!
+- 📫 How to reach me? Send me a DM : )
 
 <!---
 MollyGONGGONG/MollyGONGGONG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
