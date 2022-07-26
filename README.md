@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MollyGONGGONG
 - 👀 I’m interested in learning new skills.
-- 🌱 I’m currently learning full stack developement.
+- 🌱 I’m currently reading here the Crawdads Sing. (Love that book? Same!)
 - 💞️ I’m also good at snowboarding!
 - I have two cats! (LOVE them so much :)
 - 📫 How to reach me? Send me a DM : )
