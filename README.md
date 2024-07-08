@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MollyGONGGONG
-- 👀 I’m interested in learning new things/web development/statistical analysis/#r programming.
+- 👀 I’m interested in learning new things/data science/r developing/web development/statistical analysis/#r programming.
 - 🌱 I’m currently reading Where the Crawdads Sing. (Love that book? Same!)
 - 💞️ I’m also good at snowboarding!
 - I have two cats! (LOVE them so much :)
